@@ -1,4 +1,4 @@
-# 
+# elite Arbitrage Bot for pump.fun sniper bot | MEV-detection & degen-coin-scanning offers the most advanced pump.fun sniper bot, with MEV-detection and degen-coin-scanning. Ideal
 
 
 
